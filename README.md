@@ -1,8 +1,8 @@
 [wemakeacake.com](http://wemakeacake.com)
 
-![](http://farm8.staticflickr.com/7386/9876893456_cdc5e75764_z.jpg)
+![](http://farm9.staticflickr.com/8398/8639185009_db4039069b_z.jpg)
 
-_Eventally, it's about people making cakes._
+_In the end, it's about people making cakes. And eating them._
 
-[Photo © Michael Pollak](http://www.flickr.com/photos/michaelpollak/9876893456/)
+[Photo © Rev. Xanatos Satanicos Bombasticos](http://www.flickr.com/photos/clintjcl/with/8639185009/)
 
