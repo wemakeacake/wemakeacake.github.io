@@ -1,4 +1,3 @@
-[wemakeacake.com](http://wemakeacake.com)
 
 ![](http://farm9.staticflickr.com/8398/8639185009_db4039069b_z.jpg)
 
